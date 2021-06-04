@@ -1,0 +1,9 @@
+# rYeKi
+# token
+# programming
+# contract
+# amendments
+# totalsupply
+# functionality
+# pumpamentals
+# fundanmentals
